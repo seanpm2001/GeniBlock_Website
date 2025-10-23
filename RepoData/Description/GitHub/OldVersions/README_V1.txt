@@ -1,0 +1,1 @@
+🚫️⛔️🔞️🌐️ The official source repository for the website of the GeniBlock project, a software tool that blocks sexual content (such as d*ck pics) from being sent to you on various messaging clients. 
